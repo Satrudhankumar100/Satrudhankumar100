@@ -4,7 +4,7 @@
 📞 7979981500  
 📧 [satrudhankumar678@gmail.com](mailto:satrudhankumar678@gmail.com)  
 🔗 [GitHub: Satrudhankumar100](https://github.com/Satrudhankumar100)  
-🔗 [LinkedIn: Satrudhan Kumar](https://www.linkedin.com/in/satrudhan-kumar-9ab536229/)
+🔗 [LinkedIn: Satrudhan Kumar](https://www.linkedin.com/in/satrudhankumar100)
 
 ---
 
